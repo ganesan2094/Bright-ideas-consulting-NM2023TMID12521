@@ -1,1 +1,0 @@
-# Bright-ideas-consulting-NM2023TMID12521
